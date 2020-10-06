@@ -1,1 +1,0 @@
-A sample template for marketeers
